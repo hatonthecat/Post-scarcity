@@ -29,7 +29,7 @@ This is also happening in the human world in spades. In regions like the Middle 
 
 So it’s not a humanist question. It’s a multi-kind and multi-species question.'
 
-With AI potentially replacing many people's jobs before any amount of social safety nets can be implemented, our world of climate destruction is leading to more instability and uncertainty. Thus futurists and e/acc that place all their optimisism in AI are not believably doing anything to address the cost of living crisis. Hardtech is more than AI, and the manufacture of durable, environmentally conscious goods that resemble more permaculture than disposable planned obsolescence is the only path to true and value-based abundance. In fact, anything that isn't "value based" is explicitly unsustainable as abundance of human goods requires an abundance of vacant landfills. 
+With AI potentially replacing many people's jobs before any amount of social safety nets can be implemented, our world of climate destruction is leading to more instability and uncertainty. Thus futurists and e/acc that place all their optimism in AI are not believably doing anything to address the cost of living crisis. Hardtech is more than AI, and the manufacture of durable, environmentally conscious goods that resemble more permaculture than disposable planned obsolescence is the only path to true and value-based abundance. In fact, anything that isn't "value based" is explicitly unsustainable as abundance of human goods requires an abundance of vacant landfills. 
 
 
 
