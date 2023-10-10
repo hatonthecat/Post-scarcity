@@ -15,6 +15,17 @@ https://www.youtube.com/watch?v=0Cdqs2Q1Vis Because if the world's richest perso
 
 ![image](https://github.com/hatonthecat/Post-scarcity/assets/76194453/22e45de2-094d-4feb-8e05-812c2c59608c)
 
+in order to make things abundant, the U.S. should be investing in cheaper cars, such as the Elio, which, when it was originally announced was supposed to be a $6800 car that got 84 miles per gallon. Today, Door Dash, Uber Eats, and Amazon Prime drivers spent thousands of dollars on gas and repairs for used cars that do not economically break even, and some even riskier drivers prefer to drive on [scooters](https://www.youtube.com/watch?v=TxkwsXNxkts) to save on gas.
+
+"Another factor that has swollen average prices is that 32 models in the United States now have selling prices above $100,000, according to Cox. SUVS and trucks dominate the current U.S. market, with the Ford F- Series pickups — priced between $40,000 and $112,000 — taking the top spot of Kelly Bluebook's Top 25 Best-Selling Cars of 2023. As recently as 2018, only 12 models sold for over 100 grand. 
+
+People like Andrew Lang of Flint, Michigan, feel priced out of the market entirely. Lang, 26, said there's no way he could afford a new car right now, not even a Mirage.
+
+"I don't make enough money," he said,
+
+Lang spoke after stepping out of his 2009 Chevrolet Impala in a grocery store parking lot near Ypsilanti. The Impala, with cloudy headlights, a crack in the front bumper and a dent in right side of the trunk, has 150,000 miles on it. Lang, an information technology coordinator, said he doesn't know what he'd do if he had to replace it. He would have to buy a used car — if he could find something affordable."
+
+The CHIPS act could have infused hundreds of millions of dollars into an affordable car that no one in Detroit wants to make anymore. Instead it goes towards IP that makes the cost of living even more expensive, as land in cheap areas of the country gets purchased by tech companies to run their datacenters to comply with U.S. investment grants. 
 
 https://www.theguardian.com/world/2019/jun/20/donna-haraway-interview-cyborg-manifesto-post-truth "Feminist cyborg scholar Donna Haraway: ‘The disorder of our era isn’t necessary’" (6/20/2019)
 
