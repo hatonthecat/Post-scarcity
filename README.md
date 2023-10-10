@@ -1,5 +1,5 @@
 # Post-scarcity
-An analysis of a topic I tried to ignore more than 10 years ago, but has taken Silicon Valley by storm
+An analysis of a topic I initially embraced more than 10 years ago, but has now taken Silicon Valley by storm.
 
 ![image](https://github.com/hatonthecat/Post-scarcity/assets/76194453/727a2693-0998-4c17-8e08-6ce0f14585a2)
 
