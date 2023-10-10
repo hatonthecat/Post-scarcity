@@ -13,7 +13,7 @@ In a post-scarcity world, there would be more houses than people. And labor coul
 
 https://www.youtube.com/watch?v=0Cdqs2Q1Vis Because if the world's richest person prefers a tiny home for efficiency when working in a factory, that says a lot about the needs of many others. In the late 00's, I was infatuated with Tumbleweed Tiny Homes. Initially costing between 39,000 and 49,000, I thought they were an affordable home that many could eventually own, and reduce the homeless population. Yet, the cost of things in the world, whether or not the U.S. can adjust its zoning laws  that prohibit such free standing RVs in most areas, will lead to what has been described as "systemic homelessness."
 
-https://www.theguardian.com/world/2019/jun/20/donna-haraway-interview-cyborg-manifesto-post-truth "Feminist cyborg scholar Donna Haraway: ‘The disorder of our era isn’t necessary’" (6/19/2020)
+https://www.theguardian.com/world/2019/jun/20/donna-haraway-interview-cyborg-manifesto-post-truth "Feminist cyborg scholar Donna Haraway: ‘The disorder of our era isn’t necessary’" (6/20/2019)
 
 "What do you find most salient at the moment?
 
