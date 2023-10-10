@@ -17,6 +17,8 @@ https://www.youtube.com/watch?v=0Cdqs2Q1Vis Because if the world's richest perso
 
 In order to make things abundant, the U.S. should be investing in cheaper cars, with [open source](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2837598) automotive software, standardized aftermarket components, [open source car](https://en.wikipedia.org/wiki/Open-source_car) chasses for mass-producability in local body shops, resembling ultra-fuel efficient vehicles such as the Elio, which, when it was originally announced was supposed to be a $6,800 car that got 84 miles per gallon. Today, Door Dash, Uber Eats, and Amazon Prime drivers spend tens of thousands of dollars on gas and repairs for used cars that do not economically break even, and some even riskier drivers prefer/can only afford to drive on [scooters](https://www.youtube.com/watch?v=TxkwsXNxkts) to save on gas.
 
+From the CBSNews article linked above the chart:
+
 "Another factor that has swollen average prices is that 32 models in the United States now have selling prices above $100,000, according to Cox. SUVS and trucks dominate the current U.S. market, with the Ford F- Series pickups — priced between $40,000 and $112,000 — taking the top spot of Kelly Bluebook's Top 25 Best-Selling Cars of 2023. As recently as 2018, only 12 models sold for over 100 grand. 
 
 People like Andrew Lang of Flint, Michigan, feel priced out of the market entirely. Lang, 26, said there's no way he could afford a new car right now, not even a Mirage.
