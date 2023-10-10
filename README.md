@@ -41,7 +41,7 @@ Now, we are facing a world with all three of those things. We are facing the pro
 
 This is also happening in the human world in spades. In regions like the Middle East and Central America, we are seeing forced displacement, some of which is climate migration. The drought in the Northern Triangle countries of Central America [Honduras, Guatemala and El Salvador] is driving people off their land.
 
-So it’s not a humanist question. It’s a multi-kind and multi-species question.'
+So it’s not a humanist question. It’s a multi-kind and multi-species question."
 
 With AI potentially replacing many people's jobs before any amount of social safety nets can be implemented, our world of climate destruction is leading to more instability and uncertainty. Thus futurists and e/acc that place all their optimism in AI are not believably doing anything to address the cost of living crisis. Hardtech is more than AI, and the manufacture of durable, environmentally conscious goods that resemble more permaculture than disposable planned obsolescence is the only path to true and value-based abundance. In fact, anything that isn't "value based" is explicitly unsustainable as abundance of human goods requires an abundance of vacant landfills. 
 
