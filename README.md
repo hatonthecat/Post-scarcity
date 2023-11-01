@@ -47,6 +47,13 @@ So it’s not a humanist question. It’s a multi-kind and multi-species questio
 
 With AI potentially replacing many people's jobs before any amount of social safety nets can be implemented, our world of climate destruction is leading to more instability and uncertainty. Thus futurists and e/acc that place all their optimism in AI are not believably doing anything to address the cost of living crisis. Hardtech is more than AI, and the manufacture of durable, environmentally conscious goods that resemble more permaculture than disposable planned obsolescence is the only path to true and value-based abundance. In fact, anything that isn't "value based" is explicitly unsustainable as abundance of human goods requires an abundance of vacant landfills. Some people prefer basic [cars](https://en.wikipedia.org/wiki/American_Auto), basic [housing](https://en.wikipedia.org/wiki/Lustron_house#/media/File:Jermain_Street_Albany.JPG/), even being labeled "based."
 
+https://en.wikipedia.org/wiki/Scissors_Crisis
+
+![image](https://github.com/hatonthecat/Post-scarcity/assets/76194453/bbeecba2-f5a1-4c8f-8808-208cf0c56f8e)
+
+Is there any similarity between cost of maufactured goods and tangibles such as homes and services such as medical care? Or is it that that there are more products to choose from, requiring foregoring some purchases? In any case, it seems that basic needs are overpriced for all but those who have an early advantage. 
+
+
 
 
 
