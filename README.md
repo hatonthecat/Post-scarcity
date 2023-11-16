@@ -58,7 +58,7 @@ https://en.wikipedia.org/wiki/Scissors_Crisis
 
 ![image](https://github.com/hatonthecat/Post-scarcity/assets/76194453/bbeecba2-f5a1-4c8f-8808-208cf0c56f8e)
 
-Is there any similarity between cost of maufactured goods and tangibles such as homes and services such as medical care? Or is it that that there are more products to choose from, requiring foregoring some purchases? In any case, it seems that basic needs are overpriced for all but those who have an early advantage. 
+Is there any similarity between cost of manufactured goods and tangibles such as homes and services such as medical care? Or is it that that there are more products to choose from, requiring foregoing some purchases? In any case, it seems that basic needs are overpriced for all but those who have an early advantage. 
 
 
 
