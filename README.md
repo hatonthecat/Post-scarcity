@@ -9,7 +9,7 @@ https://en.wikipedia.org/wiki/Accelerationism
 
 The question is, what type of abundance are we talking about?
 
-See my [blog post](https://github.com/hatonthecat/Biology/blob/main/I%20wrote%20to%20Freeman%20Dyson%2015%20years%20ago%3B%20he%20responded%20nicely.pdf) on a letter I wrote to Freeman Dyson in 2008.
+Imagine you have a slow -moving, Catgeory 5 hurricane in the Caribbean. Northbound, it is expected to reach the southern shores of Florida in days. A condo highrise has removabable condos, and all the units can be emptied from the frame structure, and temporarily moved upstate or under ground. See my [blog post](https://github.com/hatonthecat/Biology/blob/main/I%20wrote%20to%20Freeman%20Dyson%2015%20years%20ago%3B%20he%20responded%20nicely.pdf) on a letter I wrote to Freeman Dyson in 2008.
 
 When I think of abundance, I think of [3D Printed houses](https://builtin.com/3d-printing/3d-printed-house)- leveraging automation to lower the cost of construction, because, you know, the median salary of many U.S. workers is far less than the ability to pay off a 30 year mortgage.
 
