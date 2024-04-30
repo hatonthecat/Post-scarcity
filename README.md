@@ -33,6 +33,9 @@ Lang spoke after stepping out of his 2009 Chevrolet Impala in a grocery store pa
 
 The CHIPS act could have infused hundreds of millions of dollars into an affordable car that no one in Detroit wants to make anymore. Instead it goes towards IP that makes the cost of living even more expensive, as land in cheap areas of the country gets purchased by tech companies to run their datacenters to comply with U.S. investment grants. The Elio needs(ed) between [$374 million](https://www.cnet.com/roadshow/news/elio-motors-needs-376m-to-bring-its-three-wheelers-to-production/) (in 2017) and $800 million (today) to realize production of its 3-wheeled car. An engine like the opposed-piston or Twin Air (Fiat 500) would also be a a way to improve fuel efficiency above 84mpg. Today, it is renting out factory space, presumably to raise funds.
 
+Diaspora
+--
+
 https://www.theguardian.com/world/2019/jun/20/donna-haraway-interview-cyborg-manifesto-post-truth "Feminist cyborg scholar Donna Haraway: ‘The disorder of our era isn’t necessary’" (6/20/2019)
 
 "What do you find most salient at the moment?
