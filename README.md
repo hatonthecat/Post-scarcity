@@ -52,6 +52,9 @@ This is also happening in the human world in spades. In regions like the Middle 
 
 So it’s not a humanist question. It’s a multi-kind and multi-species question."
 
+Anti-Solutionism as a form of Artificial Scarcity
+--
+
 With AI potentially replacing many people's jobs before any amount of social safety nets can be implemented, our world of climate destruction is leading to more instability and uncertainty. Thus futurists and e/acc that place all their optimism in AI are not believably doing anything to address the cost of living crisis. Hardtech is more than AI, and the manufacture of durable, environmentally conscious goods that resemble more permaculture than disposable planned obsolescence is the only path to true and value-based abundance. In fact, anything that isn't "value based" is explicitly unsustainable as abundance of human goods requires an abundance of vacant landfills. Some people prefer [basic](https://medium.com/@techrecount/cafe-and-traditional-automakers-cynical-use-of-electric-cars-to-meet-standards-93b5e2b3b69c) [cars](https://en.wikipedia.org/wiki/American_Auto), basic [housing](https://en.wikipedia.org/wiki/Lustron_house#/media/File:Jermain_Street_Albany.JPG/), even being labeled "[based](https://en.wikipedia.org/wiki/Lil_B)."
 
 ![image](https://github.com/hatonthecat/Post-scarcity/assets/76194453/cee6b58e-162c-4bf1-9cf9-f50f561b3b81)
