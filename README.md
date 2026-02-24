@@ -1,6 +1,8 @@
 # Post-scarcity
 An analysis of a topic I initially embraced more than 10 years ago, but has now taken Silicon Valley by storm.
 
+A new generation of terrestrial citizens have learned what many have known for years: https://www.youtube.com/watch?v=FvMSjbXhfXw
+
 A lot in the effective acceleration circles believe in a concept called post-scarcity: https://en.wikipedia.org/wiki/Post-scarcity#Speculative_technology
 
 "Futurists who speak of "post-scarcity" suggest economies based on advances in automated manufacturing technologies,[4] often including the idea of self-replicating machines, the adoption of division of labour[8] which in theory could produce nearly all goods in abundance, given adequate raw materials and energy."
