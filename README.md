@@ -1,6 +1,8 @@
 # Post-scarcity
 An analysis of a topic I initially embraced more than 10 years ago, but has now taken Silicon Valley by storm.
 
+https://www.nytimes.com/2026/02/27/business/a-world-where-all-is-free-thats-elon-musks-theory-of-sustainable-abundance.html (link not an endorsement of any of the subjects)
+
 A new generation of terrestrial citizens have learned what many have known for years: https://www.youtube.com/watch?v=FvMSjbXhfXw
 
 A lot in the effective acceleration circles believe in a concept called post-scarcity: https://en.wikipedia.org/wiki/Post-scarcity#Speculative_technology
