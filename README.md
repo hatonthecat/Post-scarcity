@@ -1,6 +1,10 @@
 # Post-scarcity
 An analysis of a topic I initially embraced more than 10 years ago, but has now taken Silicon Valley by storm.
 
+https://www.bloomberg.com/opinion/articles/2026-03-03/ai-future-more-like-rubber-less-like-indigo?embedded-checkout=true
+
+"For the entirety of modern economic history, human intelligence has been the scarce input. Capital was abundant (or at least, replicable). Natural resources were finite but substitutable. Technology improved slowly enough that humans could adapt. Intelligence, the ability to analyze, decide, create, persuade, and coordinate, was the thing that could not be replicated at scale." 2-22-2026 https://www.citriniresearch.com/p/2028gic
+
 https://www.nytimes.com/2026/02/27/business/a-world-where-all-is-free-thats-elon-musks-theory-of-sustainable-abundance.html (link not an endorsement of any of the subjects)
 
 A new generation of terrestrial citizens have learned what many have known for years: https://www.youtube.com/watch?v=FvMSjbXhfXw
